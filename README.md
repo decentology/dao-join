@@ -9,5 +9,15 @@
 
 *Join Requests*
 
-Z2VsIzk2MDI= Ultimate Flow God
+dGVjaGJ1YmJsZSMwMDAx Flow Sorcerer
+
+dHNuYWtlamFrZSM4MzY0 Ultimate Flow God
+
+YnojMDc4MA Ultimate Flow God
+
+ajAwbHog8J+SqyMyMTU1 Ultimate Flow God
+
+S01hYyAoaTAwMTk2MikjMTkwMw (I have no idea what level. Only completed first quest.)
+
+Z2VsIzk2MDI Ultimate Flow God
 
