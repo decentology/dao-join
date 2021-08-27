@@ -9,7 +9,5 @@
 
 *Join Requests*
 
-dGVjaGJ1YmJsZSMwMDAx Flow Sorcerer
-
-dHNuYWtlamFrZSM4MzY0 Ultimate Flow God
+Z2VsIzk2MDI= Ultimate Flow God
 
