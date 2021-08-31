@@ -45,7 +45,7 @@ bWVoYXJhYiM4MjQ5 Ultimate Flow God
 
 S1IjNTg3OQ Ultimate Flow God
 
-dGVuYWNpb3VzX2JpcmRfb2ZfcHJleSMwNTMw flow quester
+dGVuYWNpb3VzX2JpcmRfb2ZfcHJleSMwNTMw (none)
 
 U3VuZGVlcCBDaGFyYW4gUmFta3VtYXIjMjcwMw Ultimate Flow God
 
@@ -55,6 +55,6 @@ UGhpbGwjMTg1NA Ultimate Flow God
 
 U29sdmVyIzk0MjI Ultimate Flow God
 
-Y2FybG9zUGFqYXJlcwojOTM4MQ flow quester
+Y2FybG9zUGFqYXJlcwojOTM4MQ (none)
 
-RW1yZSDigKIgUElDT05CRUxMTyM0MzUz (I have no idea what rank I am. I was very busy with several releases through the event unfortunately.)
+RW1yZSDigKIgUElDT05CRUxMTyM0MzUz (none)
