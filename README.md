@@ -17,11 +17,11 @@ YnojMDc4MA Ultimate Flow God
 
 ajAwbHog8J+SqyMyMTU1 Ultimate Flow God
 
-S01hYyAoaTAwMTk2MikjMTkwMw (I have no idea what level. Only completed first quest.)
+S01hYyAoaTAwMTk2MikjMTkwMw (none)
 
 Z2VsIzk2MDI Ultimate Flow God
 
-bnljbWl0cyMzOTkw Flow Quester
+bnljbWl0cyMzOTkw (none)
 
 ZXZhbndpbGxpYW1zIzI5MzU Ultimate Flow God
 
@@ -45,3 +45,20 @@ bWVoYXJhYiM4MjQ5 Ultimate Flow God
 
 bGFuZm9yZCMyMTc4 Ultimate Flow God
 
+bmVkIzAyNTg Ultimate flow god
+
+S1IjNTg3OQ Ultimate Flow God
+
+dGVuYWNpb3VzX2JpcmRfb2ZfcHJleSMwNTMw (none)
+
+U3VuZGVlcCBDaGFyYW4gUmFta3VtYXIjMjcwMw Ultimate Flow God
+
+dGF2cyMxMzI1 Ultimate Flow God
+
+UGhpbGwjMTg1NA Ultimate Flow God
+
+U29sdmVyIzk0MjI Ultimate Flow God
+
+Y2FybG9zUGFqYXJlcwojOTM4MQ (none)
+
+RW1yZSDigKIgUElDT05CRUxMTyM0MzUz (none)
